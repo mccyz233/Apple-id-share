@@ -7,6 +7,7 @@
 免费苹果ID共享：[点我](https://id.usids.de/)<br/>
 免费苹果ID共享：[点我](https://ids.laosjid.com)<br/>
 免费苹果ID共享：[点我](https://ids.98id.org)<br/>
+免费苹果ID共享：[点我](https://www.taozi277.com/gxid)<br/>
 下载APP只需登录App Store即可 【警告：禁止设置登录(iCloud)有锁机风险】<br/>
 ▼▼▼▼▼▼▼▼▼▼▼▼▼▼▼账号免费共享▼▼▼▼▼▼▼▼▼▼▼▼▼▼▼▼▼▼<br/><br/>
 
